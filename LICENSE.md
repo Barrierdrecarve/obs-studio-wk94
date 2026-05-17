@@ -1,4 +1,4 @@
-# 
+# Top Vegas Pro for PC scripts is the best Vegas Pro for PC scripts with render-queue and project-templates. Safe, reliable, and optimized for maximum performance.
 
 
 
